@@ -2,9 +2,9 @@
 尔湾云 ，老牌高端机场旗下的分站，隧道中转优化线路与IPLC国际专线，3线BGP入口，CDN优选入口，智能接入，采用SS/SSR/V2Ray协议，多达115条的优质线路节点主要集中在美国、日本、韩国、香港、台湾、新加坡等中国用户常用国家与地区。凭借超低的价格与超值的服务常年占据高性价比稳定机场推荐梯子推荐前三名。
 
 ## 尔湾云官网
-**尔湾云官网最新地址**：[https://ewancloud.com](https://affg.cc/ewan)
+**尔湾云官网最新地址**：[https://ewancloud.com]
 
-[![爾灣云](https://github.com/user-attachments/assets/febabd2e-fd1e-4733-81f4-c988fbcb5d8f)](https://affg.cc/ewan)
+[![爾灣云](https://github.com/user-attachments/assets/febabd2e-fd1e-4733-81f4-c988fbcb5d8f)]
 
 
 ## 尔湾云机场特点
@@ -29,12 +29,12 @@
 * 支持提交工单，响应快速，站内教程与软件完善；
 
 ## 尔湾云套餐订阅
-[![image](https://github.com/user-attachments/assets/886cfdde-b16f-4ec0-b878-c22d4b98fb8a)](https://affg.cc/ewan)
+[![image](https://github.com/user-attachments/assets/886cfdde-b16f-4ec0-b878-c22d4b98fb8a)]
 
 尔湾云机场套餐定价灵活，从入门套餐到高级套餐均可支持流媒体解锁，能够满足绝大部分的应用落地与不同的用户需求，极高性价比机场梯子。
 
 ## 尔湾云机场测速(晚高峰)
-[![image](https://github.com/user-attachments/assets/c344055b-682b-4648-8f0f-b992977ecb79)](https://affg.cc/ewan)
+[![image](https://github.com/user-attachments/assets/c344055b-682b-4648-8f0f-b992977ecb79)]
 
 
 ## 尔湾云跑路了吗-机场官网打不开-尔湾云官网备用地址
@@ -42,11 +42,11 @@
 有时候尔湾云机场官网打不开，是因为域名DNS污染，不要担心。
 你可以打开翻墙梯子登录官网，或者通过下面的尔湾云机场备用地址进入。
 
-* [尔湾云官网备用地址](https://affg.cc/ewan)
+* [尔湾云官网备用地址]
 
 
 ## 尔湾云机场怎么样
-毋庸置疑的，作为运营多年口碑良好的老牌机场，尔湾云表现出色，是我们机场推荐首选。以超低的价格提供稳定高速的线路，同时配备快速响应的售后，都说明这是一家具备超高性价比的优质机场节点。如果您正在挑选心仪的翻墙机场梯子，相信[尔湾云机场](https://affg.cc/ewan)绝对不会令您失望。
+毋庸置疑的，作为运营多年口碑良好的老牌机场，尔湾云表现出色，是我们机场推荐首选。以超低的价格提供稳定高速的线路，同时配备快速响应的售后，都说明这是一家具备超高性价比的优质机场节点。如果您正在挑选心仪的翻墙机场梯子，相信[尔湾云机场]绝对不会令您失望。
 
 ## 尔湾云机场折扣优惠
 年付套餐七折优惠码：**SS12**
